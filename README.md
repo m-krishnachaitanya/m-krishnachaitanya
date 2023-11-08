@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Krishna Chaitanya
 - 👀 I’m interested in learn and develop new things
-- 🌱 I’m always a learning 
+- 🌱 I’m always a learner 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me krishnachaitanyajnv22@gmail.com
 
